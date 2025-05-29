@@ -3,7 +3,7 @@
 <p align="center">     
    dbh, pjsk, 9-1-1 (tv show) and KATSEYE <3
 <p align="center">     
-  IF YOU LIKE DBH PLEASE BE MY FRIEND!!!!!!!!!
+  IF YOU LIKE DBH PLEASE BE MY FRIEND!!!!!!!!! Unless you dont like hankcon cuz I love hankcon
 <p align="center">     
 only if ur my age tho... please dni if youre like 13 or something...
 <p align="center">
