@@ -1,5 +1,5 @@
 <p align="center">     
-  leo/miles, 18, bpdtism :P
+  leo/miles, 18, ENG/ESP/日本語（少し(;^ω^)）
 <p align="center">     
    dbh, pjsk, 9-1-1 (tv show) and KATSEYE <3
 <p align="center">     
