@@ -1,4 +1,3 @@
-![image](https://64.media.tumblr.com/8f6c52308aaaa34202515d5bc42c248c/d4f9c64c847b4a30-92/s640x960/6c66537bb40c201c901fd95957a278ee80ac22e2.png)
 <p align="center">     
   leo/miles, 18, bpdtism :P
 <p align="center">     
