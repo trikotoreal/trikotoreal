@@ -1,3 +1,5 @@
+<p align="center">
+  ![image](https://64.media.tumblr.com/8f6c52308aaaa34202515d5bc42c248c/d4f9c64c847b4a30-92/s640x960/6c66537bb40c201c901fd95957a278ee80ac22e2.pnj)
 <p align="center">     
   leo/miles, 18, bpdtism :P
 <p align="center">     
@@ -7,7 +9,7 @@
 <p align="center">     
 only if ur my age tho... please dni if youre like 13 or something...
 <p align="center">
-[my strawpage!!!!](https://coolguyworld.straw.page/)
+https://coolguyworld.straw.page/
   
 ![image](https://pbs.twimg.com/media/E5f3FTeVEAEJj7i?format=jpg&name=large)
 > 君は愛そのものだ　・ img: @futai21 on twt
