@@ -8,7 +8,7 @@
 only if ur my age tho... please dni if youre like 13 or something...
   
 ![image](https://pbs.twimg.com/media/E5f3FTeVEAEJj7i?format=jpg&name=large)
-
+> 君は愛そのものだ
 <!--
 **trikotoreal/trikotoreal** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
