@@ -6,6 +6,7 @@
   IF YOU LIKE DBH PLEASE BE MY FRIEND!!!!!!!!!
 <p align="center">     
 only if ur my age tho... please dni if youre like 13 or something...
+  
 ![image]([https://github.com/user-attachments/assets/523da061-ac8b-41fa-88ed-dd8113975a11](https://pbs.twimg.com/media/E5f3FTeVEAEJj7i?format=jpg&name=large))
 
 <!--
