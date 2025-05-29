@@ -6,6 +6,8 @@
   IF YOU LIKE DBH PLEASE BE MY FRIEND!!!!!!!!!
 <p align="center">     
 only if ur my age tho... please dni if youre like 13 or something...
+<p align="center">
+[my strawpage!!!!](https://coolguyworld.straw.page/)
   
 ![image](https://pbs.twimg.com/media/E5f3FTeVEAEJj7i?format=jpg&name=large)
 > 君は愛そのものだ　・ img: @futai21 on twt
