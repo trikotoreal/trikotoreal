@@ -7,7 +7,7 @@
 <p align="center">     
 only if ur my age tho... please dni if youre like 13 or something...
 <p align="center">
-https://coolguyworld.straw.page/
+https://canthaveshitindetroit.straw.page/
   
 ![image](https://pbs.twimg.com/media/E5f3FTeVEAEJj7i?format=jpg&name=large)
 > 君は愛そのものだ　・ img: @futai21 on twt
